@@ -1,4 +1,4 @@
-### Hey 👋, I'm [Prudhvi Garapati!](https://github.com/PrudhviGNV)
+### Hey 👋, I'm [Juan Carlos Pastuzan!](https://github.com/juanCpastuzan99)
 
 
 <a href="https://www.linkedin.com/in/prudhvignv/">
